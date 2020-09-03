@@ -5,3 +5,5 @@ Alex Thomas - This summer I did not do much, as many places were closed due to C
 Samuel Guernsey - This summer I participated in a several month lond code challange that was created to head off the challenges created by covid 19. I also ran quite a bit my recod was eight miles and I lost twelve pounds along the way. beyonde that I didnt really do much this summer besideds sleep in the pool multiple times.
 
 Bryce Woody - This summer I got an internship at INdigital and went to the Sleeping Bear Dunes in Michigan for a couple days. 
+
+Iqra Almani - This summers, I spent time in Chicago with my boyfriend. We had a pretty good routine where we woke up early and did things that needed to be done.. I also did one Java course.

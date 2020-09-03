@@ -7,3 +7,5 @@ Samuel Guernsey - This summer I participated in a several month lond code challa
 Bryce Woody - This summer I got an internship at INdigital and went to the Sleeping Bear Dunes in Michigan for a couple days. 
 
 Iqra Almani - This summers, I spent time in Chicago with my boyfriend. We had a pretty good routine where we woke up early and did things that needed to be done.. I also did one Java course.
+
+Julian Price - I didn't do much this summer. I spent a lot of time at home. However, I did garden and take an online Creative Writing class. I did well in the class and I'm really happy about that! I also spent a lot of time outside with my bird. I took him on bike rides every now and then and it was tons of fun.

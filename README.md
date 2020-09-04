@@ -9,3 +9,5 @@ Bryce Woody - This summer I got an internship at INdigital and went to the Sleep
 Iqra Almani - This summers, I spent time in Chicago with my boyfriend. We had a pretty good routine where we woke up early and did things that needed to be done.. I also did one Java course.
 
 Julian Price - I didn't do much this summer. I spent a lot of time at home. However, I did garden and take an online Creative Writing class. I did well in the class and I'm really happy about that! I also spent a lot of time outside with my bird. I took him on bike rides every now and then and it was tons of fun.
+
+Robert Klueber - This summer I did not get to do a whole lot due to COVID, and spent most of my time working and saving up money. I did hang with my friends a good amount, however generally stayed away form crows of people.
